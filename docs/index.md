@@ -1,6 +1,6 @@
 # Geistiges Heilen bei Seelenproblemen
 
-## Geistiges intuitives Heilen, Module 1, 2 und 3
+## Geistiges intuitives Heilen<br/>Module 1, 2 und 3
 
 Verantwortung für unsere Gedanken und unseren Körper zu übernehmen ist Grundstein für dieses Wirken.
 
@@ -37,6 +37,6 @@ Alle 3 Module können auch unabhängig voneinander besucht werden.
 
 Wanda Romaseuer
 
-mailto:wanda-gomes@gmx.net
+E-Mail: <a href="mailto:wanda-gomes@gmx.net">wanda-gomes@gmx.net</a>
 
 Tel.: <a href="tel:+491786616393">0178 / 661 63 93</a>
