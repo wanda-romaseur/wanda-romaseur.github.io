@@ -14,7 +14,7 @@ und im Inneren entsteht.
 ### Modul 2
 
 Die Geführte visuelle Reise/Mediation hilft dir, deiner Wahrnehmungsfähigkeit zu
-vertrauen udn zu vertiefen. Körper und Geist finden Einklang mit deiner Seele.
+vertrauen und zu vertiefen. Körper und Geist finden Einklang mit deiner Seele.
 Du kommst zur Ruhe.
 
 ### Modul 3
@@ -35,8 +35,6 @@ Alle 3 Module können auch unabhängig voneinander besucht werden.
 
 ## Kontakt
 
-Wanda Romaseuer
-
-E-Mail: <a href="mailto:wanda-gomes@gmx.net">wanda-gomes@gmx.net</a>
-
+Wanda Romaseuer  
+E-Mail: <a href="mailto:wanda-gomes@gmx.net">wanda-gomes@gmx.net</a>  
 Tel.: <a href="tel:+491786616393">0178 / 661 63 93</a>
