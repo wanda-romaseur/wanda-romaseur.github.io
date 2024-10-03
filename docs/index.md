@@ -28,7 +28,7 @@ Es entsteht eine Verbindung zur Anders-Welt und dem Hier und Jetzt.
 In diesem Energiebewusstsein kann Heilung entstehen.
 
 Erkenntnisse und Antworten aller Wahrheiten und Weisheiten sind fühlbar.
-Eine ganz neue Verbindung zwischen Mensch, Tier und der geisten Welt
+Eine ganz neue Verbindung zwischen Mensch, Tier und der geistigen Welt
 ist entstanden.
 
 Alle 3 Module können auch unabhängig voneinander besucht werden.
