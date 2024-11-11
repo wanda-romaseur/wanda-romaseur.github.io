@@ -38,3 +38,4 @@ Alle 3 Module können auch unabhängig voneinander besucht werden.
 Wanda Romaseuer  
 E-Mail: <a href="mailto:wanda-gomes@gmx.net">wanda-gomes@gmx.net</a>  
 Tel.: <a href="tel:+491786616393">0178 / 661 63 93</a>
+Telegram: <a href="https://t.me/+2Mm5Q0vGa1QxYWQy>https://t.me/+2Mm5Q0vGa1QxYWQy</a>
