@@ -1,5 +1,39 @@
 # Geistiges Heilen bei Seelenproblemen
 
+## Heikreis
+
+Menschen, die sich für die Energie des Spürens öffnen wollen,
+sind eingeladen, in dieser Gruppe des geistigen Heilens mitwirkend
+und unterstützend für die Elemente Erde, Feuer, Luft und Wasser 
+zu sein. 
+
+Wir lernen in der Gruppe gemeinsam den ehrlichen Herzaustausch
+und gehen gemeinsam in die Heilung. Ein Herzaustausch trägt dazu
+bei, die Gefühle wahrzunehmen, die gerade wirklich entstehen.
+
+Es gibt eine kleine Mediation und Körperübung, die uns helfen,
+im Körper zu bleiben. Die Grundverbindung vor dem Wirken bedeutet,
+dass wir mit unserem Körper, Geist und Seele uns BEWUSST machen,
+uns einstimmen, für das, was gerade ist. Es geht darum, 
+sich auf das Spüren einzustellen.
+
+Die geistige Ebene hilft dabei, mit den Elementare und Elemente
+wieder in Kontakt zu kommen. Damit ist auch das kleine Volk,
+Lichwesen aller Art, Engel, Feen, Elfen und noch einige mehr
+gemeint.
+
+Die Essenz von Licht und Liebe, die Christus-Energie und die
+Geist-Helfer sind große Werkzeuge für das Unterstützen unserer
+Arbeit.
+
+Wir gehen auf eine bewusste geistige Reise, die für die neue
+Zeit ausgerichtet ist. Sich leer machen unterstützt das
+SPÜREN.
+
+**Was ist mitzubringen:** Kuscheldecke, warme Socken,
+Istrumente (wenn du möchtest), deine Stimme / TON,
+deine heilenden Hände und dein offenes Herz.
+
 ## Geistiges intuitives Heilen<br/>Module 1, 2 und 3
 
 Verantwortung für unsere Gedanken und unseren Körper zu übernehmen ist Grundstein für dieses Wirken.
@@ -33,9 +67,21 @@ ist entstanden.
 
 Alle 3 Module können auch unabhängig voneinander besucht werden.
 
-## Kontakt
+## Über mich...
 
-Wanda Romaseuer  
+Mein Name ist Wanda Romaseur. Meine Sensibilität zur geistigen Welt
+dient Menschen in eine Form von Herzebene befindlich, tröstlich,
+ehrlich und offen "Sein". 
+Gemeinsam finden wir heraus, welche Gefühle, Emotionen und Ängste
+dich blockieren. Ich stelle mich als Medium zur Verfügung.
+Belastendes kann gelöst und transformiert werden.
+Ebenfalls kann Aufstellungsarbeit unterstützend sein für die Themen,
+die dich beschäftigen. Kontakt mit verstorbenen Seelen ist hilfreich,
+um unausgesprochenes zu verarbeiten.
+Durch Traumata sind Seelenanteile verloren gegangen, auch die sind
+durch visuelle Reisen zurückzuholen.
+
+Ich freue mich auf den Kontakt mit dir.
+Deine Wanda Romaseur
 E-Mail: <a href="mailto:wanda-gomes@gmx.net">wanda-gomes@gmx.net</a>  
 Tel.: <a href="tel:+491786616393">0178 / 661 63 93</a>
-Telegram: <a href="https://t.me/+2Mm5Q0vGa1QxYWQy">t.me/+2Mm5Q0vGa1QxYWQy</a>
