@@ -1,5 +1,5 @@
 ## Aktuelles
-<iframe src="https://t.me/romaseurkaidaseele?embed=1" width="400" height="300" frameborder="0"></iframe>
+<iframe src="https://t.me/romaseurkaidaseele?embed=1" width="506" height="400" frameborder="0"></iframe>
 
 ## Heikreis
 
