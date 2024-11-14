@@ -1,5 +1,3 @@
-# Geistiges Heilen bei Seelenproblemen
-
 ## Heikreis
 
 Menschen, die sich für die Energie des Spürens öffnen wollen,
