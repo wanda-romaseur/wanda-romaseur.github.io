@@ -20,7 +20,7 @@ Spende 15 €
 
 Uhrzeit 19 - 21 Uhr
 
-## Heikreis
+## Heilkreis
 
 Menschen, die sich für die Energie des Spürens öffnen wollen,
 sind eingeladen, in dieser Gruppe des geistigen Heilens mitwirkend
