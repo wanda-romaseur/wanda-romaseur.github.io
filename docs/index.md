@@ -1,5 +1,24 @@
-## Aktuelles
-<iframe src="https://t.me/romaseurkaidaseele?embed=1" width="506" height="400" frameborder="0"></iframe>
+## TERMINE DEZEMBER 2024 
+
+1.12.  HÄNDE AUFLEGEN  ( EINZELSITZUNG ) 1 1/2 std .( Zeitvorschläge sind erwünscht ) 53€
+
+15.12.HEILKREIS  ( FOKUS AUF MODUL 2 ) 19 Uhr bis 20 Uhr.  20€
+
+22.12. MUTTER /KIND HEILKREIS  11-13 Uhr     
+ 
+22.12.  Wir feiern Weihnachten 🎄 
+
+EXTRA TERMIN  !!!
+
+ HEILKREIS FÜR HEILARBEIT . 
+
+ SPIRITUALITÄT  , Energie Austausch  und BEWUSSTSEINERWEITERUNG  sind hier im FORDERGRUND . ENGEL ,LICHTWESEN UND HELFERLEIN  werden eingeladen um mit  uns zu wirken .
+
+Ich freu mich auf dich ❤️❤️❤️
+
+Spende 15 €
+
+Uhrzeit 19 - 21 Uhr
 
 ## Heikreis
 
@@ -35,6 +54,8 @@ SPÜREN.
 Istrumente (wenn du möchtest), deine Stimme / TON,
 deine heilenden Hände und dein offenes Herz.
 
+![Heilkreis Mutter & Kind](Heilkreis_Mutter_Kind.jpg)
+
 ## Geistiges intuitives Heilen<br/>Module 1, 2 und 3
 
 Verantwortung für unsere Gedanken und unseren Körper zu übernehmen ist Grundstein für dieses Wirken.
@@ -67,6 +88,8 @@ Eine ganz neue Verbindung zwischen Mensch, Tier und der geistigen Welt
 ist entstanden.
 
 Alle 3 Module können auch unabhängig voneinander besucht werden.
+
+![Händeauflegen mit Wanda](Haendeauflegen_mit_Wanda.jpg)
 
 ## Über mich...
 
