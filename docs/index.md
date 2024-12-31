@@ -89,8 +89,6 @@ ist entstanden.
 
 Alle 3 Module können auch unabhängig voneinander besucht werden.
 
-![Händeauflegen mit Wanda](Haendeauflegen_mit_Wanda.jpg)
-
 ## Über mich...
 
 Mein Name ist Wanda Romaseur. Meine Sensibilität zur geistigen Welt
