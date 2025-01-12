@@ -54,7 +54,7 @@ SPÜREN.
 Istrumente (wenn du möchtest), deine Stimme / TON,
 deine heilenden Hände und dein offenes Herz.
 
-![Heilkreis Mutter & Kind](Heilkreis_Mutter_Kind.jpg)
+
 
 ## Geistiges intuitives Heilen<br/>Module 1, 2 und 3
 
