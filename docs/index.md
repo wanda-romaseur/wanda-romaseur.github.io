@@ -1,14 +1,12 @@
-## TERMINE DEZEMBER 2024 
+## TERMINE Januar/Februar 2025 
 
-1.12.  HÄNDE AUFLEGEN  ( EINZELSITZUNG ) 1 1/2 std .( Zeitvorschläge sind erwünscht ) 53€
-
-15.12.HEILKREIS  ( FOKUS AUF MODUL 2 ) 19 Uhr bis 20 Uhr.  20€
-
-22.12. MUTTER /KIND HEILKREIS  11-13 Uhr     
- 
-22.12.  Wir feiern Weihnachten 🎄 
 
 EXTRA TERMIN  !!!
+
+
+![Singkreis](singkreis.jpg)
+
+
 
  HEILKREIS FÜR HEILARBEIT . 
 
